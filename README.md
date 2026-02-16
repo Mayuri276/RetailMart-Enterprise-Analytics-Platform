@@ -263,3 +263,9 @@ Mayuri Jamdar
 ---
 
 ⭐ If you found this project helpful, please give it a star!
+<img width="1917" height="904" alt="Screenshot 2026-02-15 004245" src="https://github.com/user-attachments/assets/8636be11-ee6d-4fbb-bfda-7210bc90b073" />
+
+<img width="1903" height="962" alt="Screenshot 2026-02-15 004153" src="https://github.com/user-attachments/assets/e5c15108-cd9f-4d5b-a44c-10c610ac5a5f" />
+
+
+
